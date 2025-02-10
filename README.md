@@ -1,0 +1,1 @@
+Mi codigo lo realize en NetBeans y despues investigue videos y cursos en paginas de internet y me ayudaron bastante también amigos mios me echaron ayudaron en mandarme videos de youtube que igual me ayudaron, NetBeans lo habia visto el semestre anterior y la verdad es que fue de gran ayuda el programa ya que se me hace más comodo para mi.
